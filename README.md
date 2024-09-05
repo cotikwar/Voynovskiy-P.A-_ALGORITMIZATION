@@ -1,3 +1,4 @@
 https://docs.google.com/document/d/105OD4tjjiOBA40_m3zJPNe_MOZd0CbpoSF6V79ga2qo/edit?usp=sharing)
 
 # Voynovskiy-P.A-_ALGORITMIZATION
+биби
